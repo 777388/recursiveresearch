@@ -20,3 +20,5 @@ That one gets pretty weird when bifurcation memory gets controlled and they just
 
 
 Individuals have the exception port.
+
+The recursion is trying in your tries.
