@@ -10,6 +10,6 @@ They say, in the field of data sciences and machine learning, vampires and zombi
 
 I've been resuscitated before. Also I bugged the radio station.
 
-Vampires, just feeding a parasite from another dimension where their body is laying somewhere, if its actively where you see em, its getting fed not him. 
+Vampires, just feeding a parasite from another dimension where their body is laying somewhere, if its actively where you see em, its getting fed not him.  Dimensional interchangeability.
 
 we've got a no trespassing jewel wasp infestation a mile away.
