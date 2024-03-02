@@ -19,7 +19,7 @@ try:
         except:
             pass
 
-    class str(sys.argv[2]):
+    class str(sys.argv[2])(str(sys.argv[1])):
         def __init__(self):
             super(str(sys.argv[2]), self).__init__()
     insight = str(sys.argv[2])()
