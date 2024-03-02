@@ -9,3 +9,7 @@ They call it research, cause you've gotta look back at your searches and reads a
 They say, in the field of data sciences and machine learning, vampires and zombies are a real big issue
 
 I've been resuscitated before. Also I bugged the radio station.
+
+Vampires, just feeding a parasite from another dimension where their body is laying somewhere, if its actively where you see em, its getting fed not him. 
+
+we've got a no trespassing jewel wasp infestation a mile away.
