@@ -17,3 +17,6 @@ we've got a no trespassing jewel wasp infestation a mile away. Also, I like to h
 Yknow what they say about researchers? just like logistics, just bifurcations system shitting out new dimensions due to various control schemes manipulating persons in time to start an alternate dimension or universe.
 
 That one gets pretty weird when bifurcation memory gets controlled and they just have an infinite series of alternate versions of you within "virtual machine" systems on each control dialogue browser, to allow better access to appropriate important research. Zoning.
+
+
+Individuals have the exception port.
