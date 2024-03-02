@@ -12,7 +12,7 @@ I've been resuscitated before. Also I bugged the radio station.
 
 Vampires, just feeding a parasite from another dimension where their body is laying somewhere, if its actively where you see em, its getting fed not him.  Dimensional interchangeability.
 
-we've got a no trespassing jewel wasp infestation a mile away. Also, I like to hang out with the bats near the old prison. Mountain Climbing, ledge crossing.
+we've got a no trespassing jewel wasp infestation a mile away. Also, I like to hang out with the bats near the old prison. Mountain Climbing, ledge crossing. Used to bring Kanye West's white cousin, she was the one that decided Ledge Crossing behind the prison was the way to go.
 
 Yknow what they say about researchers? just like logistics, just bifurcations system shitting out new dimensions due to various control schemes manipulating persons in time to start an alternate dimension or universe.
 
