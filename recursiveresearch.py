@@ -26,3 +26,5 @@ try:
     (lambda: insight.kwargs())()
 except:
     print("recursion -"+sys.argv[3])
+    import trace
+    trace.Trace(count=1)
